@@ -13,5 +13,7 @@ Yaptığımız araştırmalar sonucunda havlunun vurulması anında çıkan sesi
 
 ## Kaynaklar
 https://youtu.be/SGGi7AqEvrY
+
 https://www.thenakedscientists.com/forum/index.php?topic=31266.0
+
 https://www.scientificamerican.com/article/true-cause-of-whips-crack/
